@@ -1,0 +1,1 @@
+First week assignment for She Code africa mentorship program
